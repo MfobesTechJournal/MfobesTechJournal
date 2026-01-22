@@ -1,4 +1,4 @@
-# Mfobe Ntintelo 👋
+# Mfobe Ntintelo 
 **Software Developer · AI & Data Engineering · DevOps & Cloud**
 
 📍 Johannesburg, South Africa · **Available**  
