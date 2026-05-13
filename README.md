@@ -5,7 +5,7 @@
 📞 +27 67 013 7413 · ✉️ relelentintelo@gmail.com  
 🔗 GitHub: https://github.com/MfobesTechJournal  
 🔗 LinkedIn: https://linkedin.com/in/mfobe-ntintelo-635440140  
-🔗 Portfolio: https://mfobe-ntintelo.netlify.app/
+🔗 Portfolio: https://personal-portfolio-eight-chi-94.vercel.app/
 
 
 
